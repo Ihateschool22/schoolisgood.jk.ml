@@ -1,0 +1,2 @@
+# schoolisgood.jk.ml
+proxyy
